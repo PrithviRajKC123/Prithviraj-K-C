@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Computer Science Engineering Student !!
+Currently doin B-tech in CSE at PES University!!!!
 
 
 ## 🌐 Socials:
