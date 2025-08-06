@@ -1,5 +1,5 @@
 # 💫 About Me:
-Currently doin B-tech in CSE at PES University!!!!
+Currently doing B-tech in CSE at PES University!!!!
 
 
 ## 🌐 Socials:
